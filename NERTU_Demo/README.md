@@ -1,1 +1,1 @@
-https://aditiwari7.github.io/NERTU_Demo/
+https://mehreensayyed.github.io/NERTU_Demo/
